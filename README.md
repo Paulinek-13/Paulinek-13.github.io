@@ -1,1 +1,1 @@
-[MOVED TO](https://github.com/paulinek13)
+[go to paulinek13](https://github.com/paulinek13)
